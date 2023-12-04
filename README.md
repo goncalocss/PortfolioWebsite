@@ -7,6 +7,5 @@ Your feedback is valuable to me! If you have any suggestions, find issues, or wa
 
 Thank you for visiting my portfolio! I look forward to connecting with you.
 
-Best<br>
 Gonçalo Seixas<br>
 goncalocaetano2003@gmail.com 
